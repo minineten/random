@@ -1,2 +1,1 @@
-davs med dig.
-..
+i have no clue why i made this repo.. 
